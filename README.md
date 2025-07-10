@@ -24,4 +24,4 @@
 
 马上收藏本站，告别低质、卡顿与广告满天飞的老旧平台。成人羞羞免费，让你在2025年尽享高效、纯净、高清的日本AV观影体验！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/huy26111/riben33333 ）</span> 
